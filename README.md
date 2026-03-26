@@ -5,7 +5,7 @@ xdxdxdxdxdxxdx
 juanpa es putpo
 
 
-eric es gos
+eric es god
 
 
 
